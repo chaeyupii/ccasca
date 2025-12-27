@@ -8,6 +8,7 @@
 
 ⋆⁺₊⋆ i go by any pronouns idrm:33 you can call me casca/cass ♬⋆.˚!!  I'm a silently fishcial lover𐔌՞ ܸ.ˬ.ܸ՞𐦯.. heh half miner btw... try not to ragebait me impossible!!!
 
+||I'm pansexual !! I love everyone, i connect with people's soul not their gender :×
 
 ⟢please feel free to c+h with me anytime!!⊹₊⟡⋆ I love when people are being themselves around mew :D⊹ ࣪ ˖
 
