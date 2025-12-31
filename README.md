@@ -17,7 +17,7 @@
 
 ── .✦ᗪᑎIs:
 
-𓈒⟡if you don't like fanon ships ge uh you people are so boring just not minor with adult
+𓈒⟡if you don't like fanon ships ge uh you people are so boring (depends of the ship btw)
 
 𓈒⟡you hate fish×benten 😡😡😡 I'm 1 millimeter away from your house 
 <img width="2048" height="1775" alt="17668385711598139536356805030553" src="https://github.com/user-attachments/assets/7b0d056f-8a85-4d86-aff3-005e55ae16d3" />
