@@ -17,7 +17,7 @@
 
 ── .✦ᗪᑎIs:
 
-𓈒⟡if you don't like fanon ships ge uh you people are so boring (depends of the ship btw)
+𓈒⟡if you don't like fanon ships ge uh you people are so boring (depends on the ship btw)
 
 𓈒⟡you hate fish×benten 😡😡😡 I'm 1 millimeter away from your house 
 <img width="2048" height="1775" alt="17668385711598139536356805030553" src="https://github.com/user-attachments/assets/7b0d056f-8a85-4d86-aff3-005e55ae16d3" />
@@ -27,3 +27,4 @@ I am an awkward person plz (I TRIED NOT TO OKAY)
 
 ![1766841411027662121301102468752](https://github.com/user-attachments/assets/2c30e90a-e022-4574-a206-810c55847903)
 BIGGEST SHOUT OUT TO 𑣲LUC MY BABY BOO 🥺🥺🥺 WHO HELPED ME MAKE GITHUBU UWU I LOVE YOUUUUUUUNYAAAA PLS DONT DIE
+my read me is still a huge wip :33
